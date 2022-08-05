@@ -1,4 +1,4 @@
-# dmsfzn24.github.io
+# Halo, Aku Dimas Fauzan
 
 [![MasterHead](https://4.bp.blogspot.com/-6vGvy4vCcvE/Xdcwnaf7XzI/AAAAAAAANZM/Io2mm8SXjmUVCo60byOn-XpLUpn54nizACLcBGAsYHQ/s1600/image1.gif)](https://www.instagram.com/dmsfznn/)
 <h1 align="center">Hi 👋, I'm Dimas Fauzan</h1>
